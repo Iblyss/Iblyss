@@ -6,5 +6,4 @@
 
 - 🌱 I’m currently learning programmation in school and art by myself
 - 🤔 I’m looking for help with programmation
-- 📫 How to reach me: max.hopital@gmail.com
 - 😄 Pronouns: he/him
